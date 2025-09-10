@@ -1,2 +1,3 @@
 # yellow-goku-dbn2-by-BlossomPuffie
-for real bro
+***Yellow Goku DBN Custom Skin By BlossomPuffie***
+cool right
